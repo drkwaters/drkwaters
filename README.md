@@ -1,3 +1,4 @@
 ## Hi  ill make a bio in due time :D
 
-![d955d66bbceee8f7b1903893da66669b](https://f2.toyhou.se/file/f2-toyhou-se/images/96588100_apaZkaNYvF1nPYk.png)
+
+![96588100_apaZkaNYvF1nPYk](https://github.com/user-attachments/assets/bf5bf6f4-fad4-4ed7-bf83-6991098b848b)
