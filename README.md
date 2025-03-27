@@ -1,15 +1,17 @@
-<p align = "center"><img src=https://64.media.tumblr.com/4a6b3bf1566c18212b60079191498b71/4ec8493b62f3889b-44/s400x600/aa8fc6233930683ba04fdc648c8a97f60ee280bb.pnj>
- <p align="center"><img src=https://64.media.tumblr.com/c5d416dd4e9683b5b6973f5e17e702ec/f7b61f0b33c0c7d1-b0/s250x400/360bf5d2b303d20d76c47c2d3d2c98d77526591c.gif></p>
+<p align="center"><img src=https://64.media.tumblr.com/c5d416dd4e9683b5b6973f5e17e702ec/f7b61f0b33c0c7d1-b0/s250x400/360bf5d2b303d20d76c47c2d3d2c98d77526591c.gif></p>
 
 
   <p align ="center"> Mostly off tab pls wisper if you need anything
-<p align="center"><img src=https://64.media.tumblr.com/f9c4cab227f7f00b75b4d07957e9dc50/08285e6616a83c6f-21/s75x75_c1/52ad752cf9414368a7e1193a65e3bf7253505a79.gifv><img src=https://64.media.tumblr.com/f8d3540d6f13c326a3c887301af037b7/3c5627d4c46ff0c7-63/s75x75_c1/a92de56abb0e706680da54f6089b40e1cd4eb586.gif>
+   <br><br>
+<p align="center"><img src=https://64.media.tumblr.com/f9c4cab227f7f00b75b4d07957e9dc50/08285e6616a83c6f-21/s75x75_c1/52ad752cf9414368a7e1193a65e3bf7253505a79.gifv><img src=https://64.media.tumblr.com/f8d3540d6f13c326a3c887301af037b7/3c5627d4c46ff0c7-63/s75x75_c1/a92de56abb0e706680da54f6089b40e1cd4eb586.gif><img src=https://64.media.tumblr.com/f9067caba17dc829ccc8d54bebd9a201/184d832bfd5c32dc-b7/s75x75_c1/74b577d40083705a7bce0b430375a7b41c33c050.gifv><img src=https://64.media.tumblr.com/05bbdf187f41e802e25ded740f7aac88/0f284c719dffdbff-f5/s75x75_c1/b5bda8accf940b2e223da0a6e2bd82d6686f7416.gifv>
+ <br><br>
  <p align="center">Do not copy or take inspo from my ponies please
 
  <p align="center">DNI if you harass people with irls, as I have IRLS and tend to sit in skins to reflect that.
  <p align="center">also DNI if you're just genuinely an asshole or bring drama I'm not gonna tolerate it.
- <p align="center">it isn't that hard to mind your own business. I block freely
- 
+ <p align="center">it isn't that hard to mind your own business. I block freely<br><br>
+ <p align="center"> <img src=https://64.media.tumblr.com/59b98f924cb2d0dfa66a8dfe507de6cb/1178485fdfbcc34b-75/s250x400/2f3df3ddce2fecbf423e5c024ca6b2ef26cbc8c1.gifv><img src=https://64.media.tumblr.com/6e426e4aedde0370fdae1eeb114d4544/70882ed59854440f-80/s250x400/9fab4d97e8ccb2f9332e0874a0e52fbda5d4f5de.gifv>
+  
    <p align="center"> Characters I frequently sit as:
      
 
