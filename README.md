@@ -8,8 +8,8 @@
  <p align="center">Do not copy or take inspo from my ponies please
 
  <p align="center">DNI if you harass people with irls, as I have IRLS and tend to sit in skins to reflect that.
- <p align="center">also DNI if you're just genuinely an asshole or bring drama I'm not gonna tolerate it.
- <p align="center">it isn't that hard to mind your own business. I block freely<br><br>
+ <p align="center">also DNI if you're just genuinely an asshole or bring drama I'm not gonna tolerate it. It isn't that hard to mind your own business
+ <p align="center">. Aside from all that id love if u checked out my strawpage ^_^ leave me a drawing or recommend me music!!!!<br><br>
  <p align="center"> <img src=https://64.media.tumblr.com/59b98f924cb2d0dfa66a8dfe507de6cb/1178485fdfbcc34b-75/s250x400/2f3df3ddce2fecbf423e5c024ca6b2ef26cbc8c1.gifv><img src=https://64.media.tumblr.com/6e426e4aedde0370fdae1eeb114d4544/70882ed59854440f-80/s250x400/9fab4d97e8ccb2f9332e0874a0e52fbda5d4f5de.gifv>
   
    <p align="center"> Characters I frequently sit as:
@@ -21,7 +21,5 @@
 
 
 
-
-<p align="center"> ouhh u wanna read my strawpage soo badddd yessss draw me shit n reccomend music pleasee!!!
 <p align="center"><img src=https://64.media.tumblr.com/58fa86c8207c113307968b400d7b2668/c70932fce588c2e5-e9/s100x200/8a6977391e69ef8cf067621867cc12cdcc0cb792.gifv>
 
