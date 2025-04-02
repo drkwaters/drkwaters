@@ -5,7 +5,7 @@
    <br><br>
 <p align="center"><img src=https://64.media.tumblr.com/f9c4cab227f7f00b75b4d07957e9dc50/08285e6616a83c6f-21/s75x75_c1/52ad752cf9414368a7e1193a65e3bf7253505a79.gifv><img src=https://64.media.tumblr.com/f8d3540d6f13c326a3c887301af037b7/3c5627d4c46ff0c7-63/s75x75_c1/a92de56abb0e706680da54f6089b40e1cd4eb586.gif><img src=https://64.media.tumblr.com/f9067caba17dc829ccc8d54bebd9a201/184d832bfd5c32dc-b7/s75x75_c1/74b577d40083705a7bce0b430375a7b41c33c050.gifv><img src=https://64.media.tumblr.com/05bbdf187f41e802e25ded740f7aac88/0f284c719dffdbff-f5/s75x75_c1/b5bda8accf940b2e223da0a6e2bd82d6686f7416.gifv>
  <br><br>
- <p align="center">Do not copy or take inspo from my ponies please
+ <p align="center">Do not copy my ponies please
 
  <p align="center">DNI if you harass people with irls, as I have IRLS and tend to sit in skins to reflect that.
  <p align="center">also DNI if you're just genuinely an asshole or bring drama I'm not gonna tolerate it. It isn't that hard to mind your own business
