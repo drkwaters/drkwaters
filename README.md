@@ -1,4 +1,8 @@
+
+<p align="center"><img src=https://i.pinimg.com/736x/75/cc/dc/75ccdc6022f4a35678bddfff27fc1740.jpg></p>
+
 <p align="center"><img src=https://64.media.tumblr.com/c5d416dd4e9683b5b6973f5e17e702ec/f7b61f0b33c0c7d1-b0/s250x400/360bf5d2b303d20d76c47c2d3d2c98d77526591c.gif></p>
+
 
 
   <p align ="center"> Mostly off tab pls wisper if you need anything
