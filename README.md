@@ -1,12 +1,8 @@
 
 <p align="center"><img src=https://i.pinimg.com/736x/75/cc/dc/75ccdc6022f4a35678bddfff27fc1740.jpg></p>
-
-
-
-  <p align ="center"> Mostly off tab pls wisper if you need anything
    <br><br>
-<p align="center"><img src=https://64.media.tumblr.com/f9c4cab227f7f00b75b4d07957e9dc50/08285e6616a83c6f-21/s75x75_c1/52ad752cf9414368a7e1193a65e3bf7253505a79.gifv><img src=https://64.media.tumblr.com/f8d3540d6f13c326a3c887301af037b7/3c5627d4c46ff0c7-63/s75x75_c1/a92de56abb0e706680da54f6089b40e1cd4eb586.gif><img src=https://64.media.tumblr.com/f9067caba17dc829ccc8d54bebd9a201/184d832bfd5c32dc-b7/s75x75_c1/74b577d40083705a7bce0b430375a7b41c33c050.gifv><img src=https://64.media.tumblr.com/05bbdf187f41e802e25ded740f7aac88/0f284c719dffdbff-f5/s75x75_c1/b5bda8accf940b2e223da0a6e2bd82d6686f7416.gifv>
- <br><br>
+
+  <p align ="center"> Mostly off tab pls wisper if you need anything <br>
  <p align="center">Do not copy my ponies please
 
  <p align="center">DNI if you harass people with irls, as I have IRLS and tend to sit in skins to reflect that.
@@ -23,5 +19,5 @@
 
 
 
-<p align="center"><img src=https://64.media.tumblr.com/58fa86c8207c113307968b400d7b2668/c70932fce588c2e5-e9/s100x200/8a6977391e69ef8cf067621867cc12cdcc0cb792.gifv>
-
+<p align="center"><img src=https://i.pinimg.com/474x/2f/9e/31/2f9e319b0feeb392cd5d57f006b1c358.jpg width="100"><img src=https://64.media.tumblr.com/58fa86c8207c113307968b400d7b2668/c70932fce588c2e5-e9/s100x200/8a6977391e69ef8cf067621867cc12cdcc0cb792.gifv width="110"><img src=https://64.media.tumblr.com/96a5cb9c779fdcb3dc659a54ffeedd37/24852f49d3a91228-b5/s100x200/b8d71be6dd7f44ac69e5f477740cc2e65361cb20.gifv width="110"><img src=https://64.media.tumblr.com/6ddf7075bb879fc19cf9ce83d63dffff/6d7dbe3e1a02d156-72/s100x200/2b1e8f0dd18595f588542969bc6e36f9618459c1.gifv width="110">
+ <br><br>
