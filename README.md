@@ -20,4 +20,4 @@
  <p align="center"> <img src=https://64.media.tumblr.com/696ef6334a063a10bd22a5d4baff5958/63da05d1e4bb18c7-c5/s250x400/ea2890d1631313b10b18c10517699bd93f1a8f59.gifv width="150">
 <br><br>
 <p align="center"> honorable mention of me and my horrible wife Mr Scratch from the hit game series Alan Wake
-  <p align="center"><img src=https://64.media.tumblr.com/16f7a862d681ad9f6b1177f2c6cc7861/873d2a8cdf3cc429-1c/s250x400/bd5922a6752ceac29303a00f7557bb470ce0ed56.gifv height="250"> <img src=https://ibb.co/7JR23T6R width="250"><img src=https://64.media.tumblr.com/3532722fbf4790189a35069ecf839450/246082e32b795439-f9/s400x600/758dec299c2e0e3cf452dcd574cf29a5be1a115e.gifv height="250">
+  <p align="center"><img src=https://64.media.tumblr.com/16f7a862d681ad9f6b1177f2c6cc7861/873d2a8cdf3cc429-1c/s250x400/bd5922a6752ceac29303a00f7557bb470ce0ed56.gifv height="250"> <img src=https://pbs.twimg.com/media/G68W5JUXwAATpGs?format=jpg&name=medium width="250"> <img src=https://64.media.tumblr.com/3532722fbf4790189a35069ecf839450/246082e32b795439-f9/s400x600/758dec299c2e0e3cf452dcd574cf29a5be1a115e.gifv height="250">
