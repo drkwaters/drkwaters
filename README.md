@@ -1,5 +1,5 @@
 
-<p align="center"><img src=https://64.media.tumblr.com/c816904237541793aad726130e4f2b2d/4e3cc786b21322f7-b2/s1280x1920/a2156cd6c1751fa425036ab3bfbc4b8f0a865452.gifv width="500"></p>
+<p align="center"><img src=https://static.wikia.nocookie.net/omori/images/7/7f/Omoriboy_and_Mewo.png/revision/latest?cb=20220930052620 width="500"></p>
    <br>
 
 
